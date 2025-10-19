@@ -1,0 +1,1 @@
+# nicel-analiz-ve-sharpe-oran-
